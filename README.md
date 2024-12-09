@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @maiphuongbui26
 - 👀 I’m interested in everything 
-- 🌱 I’m currently learning to code a website 
+- 🌱 I’m currently working hard to become a BA 
 - 💞️ I love the saying : I will win. Not immediately but definitely
 - 📫 Contact me on instagram : _phwonqmai__
 
